@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there ! I am Srinitya Reddy ; )
+
+I am a highly motivated and ambitious Computer Science Master's student, with a strong academic record and a clear vision for my future. I thrive on challenges and always tend to learn new stuff. I’m organized, committed, particular, and persistent. And I’m also a good communicator which helps me work with people. I love learning new languages and diving deep into them. I am also very organized, motivated, and always willing to do more than is expected of me. Also, I’m an artist, I like to sketch and paint.
 
 <!--
 **reddysrinitya/reddysrinitya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
