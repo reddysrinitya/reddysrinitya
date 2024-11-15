@@ -14,8 +14,8 @@ I’m passionate about continuous learning and am preparing to pursue further AI
 I thrive on challenges and am committed to leveraging my coding, analytical, and project management skills in a professional setting.
 
 
-👩🏻‍💻 I’m a Software Developer
-📱 I’m currently doing the Artificial Intelligence courses
+👩🏻‍💻 I’m a Software Developer /n
+📱 I’m currently doing the Artificial Intelligence courses /n
 My hobbies are drawing✍🏼 and paining🎨. Also I'm an avid chef👩🏻‍🍳
 📫 reddysrinitya@gmail.com
 📍California, United States
