@@ -6,7 +6,6 @@ Hey! Hope you are doing good.
 I am Srinitya Reddy ; )
 
 👩🏻‍💻 I’m a Software Developer 
-📱 I’m currently doing the Artificial Intelligence courses
-My hobbies are drawing✍🏼 and paining🎨. Also I'm an avid chef👩🏻‍🍳
+My hobbies are drawing✍🏼 and painting🎨. Also I'm an avid chef👩🏻‍🍳
 📫 reddysrinitya@gmail.com
 📍California, United States
